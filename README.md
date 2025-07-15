@@ -8,7 +8,7 @@ Meu contrato acabou, mas deixo tudo organizado nesse repositório para que a equ
 
 Espero que esses códigos continuem ajudando no dia a dia e facilitando os processos do CQ.
 
-Obrigado pela oportunidade e sucesso para todo mundo! 🚀
+Obrigada pela oportunidade e sucesso para todo mundo! 🚀
 
 ---
 
